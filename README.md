@@ -1,1 +1,3 @@
 # stellamango
+hi i actually don't really know what to put here but my username is the same everywhere if you care to find me
+i would prefer you dont int with me if you're proship etc i dont like you
